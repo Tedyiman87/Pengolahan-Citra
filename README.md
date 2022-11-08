@@ -1,1 +1,1 @@
-# Pengolahan-Citra
+# Tedy-Iman_Pengolahan-Citra
